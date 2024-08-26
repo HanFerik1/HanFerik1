@@ -2,7 +2,7 @@
 - 👀 I’m interested in Exotic Animals
 - 🌱 I’m currently learning AP Computer Science A
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me via my email han.ferik@hisarschool.k12.tr
+- 📫 How to reach me ? via my email han.ferik@hisarschool.k12.tr
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: There is no fun in fun facts
 
